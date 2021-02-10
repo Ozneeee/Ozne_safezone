@@ -2,10 +2,10 @@
 
 Reproduction and resell forbiden
 GNU license active
+!! TOTALLY FREE !!
 
 # Join my discord for more https://discord.gg/nx3TKM5
 
-!! TOTALLY FREE !!
 
 PREVIEW : https://streamable.com/epawih
 
