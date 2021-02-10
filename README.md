@@ -2,7 +2,9 @@
 
 Reproduction and resell forbiden
 GNU license active
+
 --Join my discord for more https://discord.gg/nx3TKM5
+
 --TOTALLY FREE
 
 PREVIEW : https://streamable.com/epawih
