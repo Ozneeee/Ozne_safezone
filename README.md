@@ -2,7 +2,7 @@
 
 Reproduction and resell forbiden
 GNU license active
-!! TOTALLY FREE !!
+!!! TOTALLY FREE !!!
 
 # Join my discord for more https://discord.gg/nx3TKM5
 
